@@ -1,0 +1,1 @@
+Employee burnout is a serious psychological condition characterized by chronic workplace stress and emotional exhaustion. It occurs when an employee experiences prolonged exposure to excessive work demands, leading to a state of physical, emotional, and mental depletion
